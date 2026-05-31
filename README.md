@@ -69,7 +69,3 @@ One of the most thoughtful books I have read about achievement, intelligence, id
 * Kindle: https://www.amazon.com/dp/B0H3DJF4HP
 * Paperback: https://www.amazon.com/dp/B0H3GTC8F2
 * Hardcover: https://www.amazon.com/dp/B0H3GQ47RB
-
----
-
-*Disclosure: I have no connection to the author. I simply found the book unusually thoughtful and wanted to share it with others who might appreciate it.*

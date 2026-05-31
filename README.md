@@ -1,6 +1,6 @@
 # Outsmarted: The Hidden Costs of Being the Smartest Person in the Room
 
-![Outsmarted Cover](cover.jpg)
+![Outsmarted Cover](front_cover.jpg)
 
 ## A rare book that is actually honest about intelligence
 
